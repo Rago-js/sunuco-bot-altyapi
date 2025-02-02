@@ -1,0 +1,1 @@
+# Sunuco Duyuru adlı botun vurmuş olduğum altyapısı alın kullanın
